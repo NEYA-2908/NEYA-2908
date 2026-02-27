@@ -1,4 +1,4 @@
-MY CODING JOURNEY
+MY CODING JOURNEY:
 Hi, my name is Ugochukwu Iwuoma. I am 14 years old and I am starting my journey to become a Software Engineer in Nigeria.
 
 My Goals for 2026:
